@@ -7,6 +7,6 @@
 - 💬 Ask me about leadership and customer service.
 - 📫 How to reach me: Email: Cerbando56@gmail.com Phone: (813)527-7395
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: i enjoy playing Pickleball
+- ⚡ Fun fact: I enjoy playing Pickleball
 - Greatest Achievemnt: Becoming a homeowner at the age of 18.
-- My goal is to become a Business owner in which i help the community but alos help people grow.
+- My goal is to become a Business owner in which I help the community but also helping people grow.
