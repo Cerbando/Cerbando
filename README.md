@@ -1,10 +1,5 @@
 ## Hi there 👋
 
-<!--
-**Cerbando/Cerbando** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 - 🔭 I’m currently working on a Bachelor's of Science in Business Analytics
 - 🌱 I’m currently learning the different ways that business world works and how to maneuver through it.
 - 👯 I’m looking to collaborate on projects related to business planning.
@@ -15,4 +10,3 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: i enjoy playing Pickleball
 - Greatest Achievemnt: Becoming a homeowner at the age of 18.
 - My goal is to become a Business owner in which i help the community but alos help people grow.
--->
