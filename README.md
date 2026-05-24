@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 - 🔭 I’m currently working on a Bachelor's of Science in Business Analytics
-- 🌱 I’m currently learning the different ways that business world works and how to maneuver through it.
+- 🌱 I’m currently learning the different ways that the business world works and how to maneuver through it.
 - 👯 I’m looking to collaborate on projects related to business planning.
 - 🤔 I’m looking for help with networking and building a brand for myself.
 - 💬 Ask me about leadership and customer service.
